@@ -1,1 +1,1 @@
-[tech](https://user-images.githubusercontent.com/66698996/209790079-126b645c-d442-471b-89e4-fd48bc08bc2d.JPG)
+![tech](https://user-images.githubusercontent.com/66698996/209790197-532af6a7-4b0d-430b-a619-ced874fb8a0f.JPG)
